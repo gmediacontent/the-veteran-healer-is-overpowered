@@ -1,1 +1,2 @@
-# the-veteran-healer-is-overpowered
+# The Veteran Healer Is Overpowered
+Le meilleur chasseur de Corée du Sud, le « chien fou » Min Siwoo. Dès que lui et ses disciples ont vaincu le Roi Démon, il a été envoyé dans un autre monde. Après une centaine d’années de combat dans un royaume rempli de monstres, il est enfin revenu sur Terre ! « Mais pourquoi tout le monde m’a-t-il oublié ? » Cent ans dans l’autre monde ne représentaient que dix ans sur Terre. Devenu un vétéran ultime après un siècle de carnage, Min Siwoo part à la recherche de ses disciples perdus et découvre la raison de son existence oubliée ! …Aux côtés de Pre, un être mystérieux qu’il a rencontré dans l’autre monde !
